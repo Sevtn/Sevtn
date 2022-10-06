@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on nothing :)
 - I would love to get gud at UE
 - 📫 If u wanna reach me **sevtnronan@gmail.com**
-- 🌱 I’m currently learning everything
+- 🌱 I’m currently learning everything on the list D:
 - 💬 Ask me anything (pls no)
 - 📝 I write absolutely 0 articles
 - ⚡ Fun fact **I’m trying**
