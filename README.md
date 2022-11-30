@@ -4,8 +4,6 @@
 - I would love to get gud at UE
 - 📫 If u wanna reach me **sevtnronan@gmail.com**
 - 🌱 I’m currently learning everything on the list D:
-- 💬 Ask me anything (pls no)
-- 📝 I write absolutely 0 articles
 - ⚡ Fun fact **I’m trying**
 
 <h3 align="left">Connect with me:</h3>
