@@ -4,7 +4,7 @@
 - I would love to get gud at UE
 - 📫 If u wanna reach me **sevtnronan@gmail.com**
 - 🌱 I’m currently learning everything on the list D:
-- ⚡ Fun fact **I’m trying**
+- You can not trust atoms, because they make up everything
 
 <h3 align="left">Connect with me:</h3>
  sevtnronan@gmail.com
